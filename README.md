@@ -1,2 +1,2 @@
 # pmp_knowledge
-pmp知识
+自己总结的  pmp 知识
