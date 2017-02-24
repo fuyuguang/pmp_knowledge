@@ -80,3 +80,25 @@
 
 
 
+
+
+![](https://raw.githubusercontent.com/fuyuguang/pmp_knowledge/master/pmp_xmind_pic/%E9%A1%B9%E7%9B%AE%E6%88%90%E6%9C%AC%E7%AE%A1%E7%90%86.png)
+
+
+
+
+
+![](https://github.com/fuyuguang/pmp_knowledge/blob/master/pmp_xmind_pic/%E9%A1%B9%E7%9B%AE%E6%95%B4%E5%90%88%E7%AE%A1%E7%90%86.png?raw=true)
+
+
+
+![](https://raw.githubusercontent.com/fuyuguang/pmp_knowledge/master/pmp_xmind_pic/%E9%A1%B9%E7%9B%AE%E9%A3%8E%E9%99%A9%E7%AE%A1%E7%90%86.png)
+
+
+
+
+
+
+
+
+
